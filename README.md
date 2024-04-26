@@ -30,3 +30,12 @@
 5、打开浏览器，参考<说明文档.txt>中的地址
 
 ***************************************************************
+![00f8274626164e2debaff4ff86d53b1](https://github.com/hjsdjko/jiaoshigerenchengguo/assets/120558513/35c72e53-2c2c-4a18-ae04-55726544171b)
+
+![8dd631f603488779d1a87d3909a96cc](https://github.com/hjsdjko/jiaoshigerenchengguo/assets/120558513/17a6a228-6313-459a-8f68-2c921b312381)
+
+![1b77d7c76a0e2dfc6e9bf5eebaf6833](https://github.com/hjsdjko/jiaoshigerenchengguo/assets/120558513/490e29e5-f8d5-4d66-bfcb-94624558b825)
+
+![322e58adf63cc27285c7112e373839f](https://github.com/hjsdjko/jiaoshigerenchengguo/assets/120558513/8345dfa9-4906-419c-bc72-6b0cbf902bc5)
+
+![4ae815ea5bea943824fa2e221a5f26c](https://github.com/hjsdjko/jiaoshigerenchengguo/assets/120558513/57f277bb-251b-423d-97d2-cc80b617beeb)
